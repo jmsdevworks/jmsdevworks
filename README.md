@@ -5,4 +5,4 @@
 - 🌟 Real-world tech projects coming soon
 - 🤝 Open to collab and mentorship
 
-Find me: [LinkedIn](https://linkedin.com/in/jillsharp) 
+Find me: [LinkedIn](https://https://www.linkedin.com/in/jillsharp34119/) 
